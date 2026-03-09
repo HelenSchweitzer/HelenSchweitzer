@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @HelenSchweitzer
-- 👀 I’m interested in sailing, scuba, photography, dogs, AI
-- 🌱 I’m currently studying for my PMP exam as well as my Coast Guard Master's license.
+- 👀 I’m interested in sailing, scuba, photography, dogs, AI, safety and self-defense
 - 💞️ I've joined PointOneNav as a TPM
 - 📫 How to reach me: helen@pointonenav.com
 - 😄 Pronouns: she/her
